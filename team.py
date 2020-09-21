@@ -1,1 +1,0 @@
-KINGS XI - RAHUL
